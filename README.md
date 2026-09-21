@@ -10,6 +10,8 @@
 - call me gloomie, woulge, or my pony's name (if it says "kin")
 - they/it, 21+ (minors dni, u shouldnt be on the 18+ server..)
 - im a holotheric otherkin along with other nonhuman terms
+- i love rain world, vrchat, adopt me, mune: gotm, spyro, skylanders, and a lot more!!
+- im a digital artist, worldbuilder, and storyteller :3
 - you can pretty much find all other relevant info abt me on my carrd!
 
 ### ✦ pony town info ✦
@@ -18,5 +20,3 @@
 - i dont roleplay, please dont try to do that...
 - i am incredibly shy and im typically just a lurker, i may struggle to talk with you. also i go afk/tab out a lot
 - i kinda just sit wherever, i dont really have a main place i go to
-
-this is still a major wip bear with me lol
