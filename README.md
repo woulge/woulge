@@ -17,5 +17,6 @@
 - if a pony has the word "kin" in the name, then it's literally me! doubles dni, sorry.
 - i dont roleplay, please dont try to do that...
 - i am incredibly shy and im typically just a lurker, i may struggle to talk with you. also i go afk/tab out a lot
+- i kinda just sit wherever, i dont really have a main place i go to
 
 this is still a major wip bear with me lol
