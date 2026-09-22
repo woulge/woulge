@@ -14,10 +14,6 @@
 - im a digital artist, worldbuilder, and storyteller :3
 - you can pretty much find all other relevant info abt me on my carrd!
 
-<div align="center">
-<img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/a8eeb49c-4bc4-4eb2-bd90-adc649ab9ed3" />
-</div>
-
 ### ✦ pony town info ✦
 - no c+h, please. i like my space! (only exception is my partner)
 - if a pony has the word "kin" in the name, then it's literally me! doubles dni, sorry.
@@ -30,5 +26,7 @@
 <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/8495e69c-7f2e-490c-ae2a-2aaac47a9ff9" />
 
 ## art by my good friend meltedstatic!! featuring my partner, me, and him :3 yayayay
+
+<img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/a8eeb49c-4bc4-4eb2-bd90-adc649ab9ed3" />
 
 </div>
