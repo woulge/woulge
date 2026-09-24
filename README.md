@@ -29,4 +29,6 @@
 
 <img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/a8eeb49c-4bc4-4eb2-bd90-adc649ab9ed3" />
 
+![](https://komarev.com/ghpvc/?username=woulge&label=hoof+bumps)
+
 </div>
