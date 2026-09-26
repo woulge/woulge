@@ -29,6 +29,11 @@
 
 ## art by my good friend meltedstatic!! featuring my partner, me, and him :3 yayayay
 
+<img width="1000" height="1000" alt="collage-editor - September 25, 2026 at 22 17 43 (1)" src="https://github.com/user-attachments/assets/f95693d1-cc3b-43e5-ad4c-766f4cdffeeb" />
+
+## check out the vrchat avi of myself that i edited :3 if im afk chances are im in unity and blender doing avi work lol
+
+
 <img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/a8eeb49c-4bc4-4eb2-bd90-adc649ab9ed3" />
 
 ![](https://komarev.com/ghpvc/?username=woulge&label=hoof+bumps)
