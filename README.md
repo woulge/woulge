@@ -10,6 +10,7 @@
 - call me gloomie, woulge, or my pony's name (if it says "kin")
 - they/it, 21+ (minors dni, u shouldnt be on the 18+ server..)
 - im a holotheric otherkin along with other nonhuman terms (plz don't refer to me as human)
+- yes, i'm literally patches from that one mlp grimdark au, genuinely. rawr
 - i love rain world, vrchat, adopt me, mune: gotm, spyro, skylanders, and a lot more!!
 - im a digital artist, worldbuilder, and storyteller :3
 - you can pretty much find all other relevant info abt me on my carrd!
@@ -19,7 +20,8 @@
 - if a pony has the word "kin" in the name, then it's literally me! doubles dni, sorry.
 - i dont roleplay, please dont try to do that...
 - i am incredibly shy and im typically just a lurker, i may struggle to talk with you. also i go afk/tab out a lot
-- i kinda just sit wherever, i dont really have a main place i go to
+- its always a mystery whether im silently watching or just completely afk (unless im with friends lol)
+- i kinda just sit wherever, but i commonly frequent the bakery, mlp area, and near spawn :P
 
 <div align="center">
   
