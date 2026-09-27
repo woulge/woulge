@@ -18,6 +18,7 @@
 ### ✦ pony town info ✦
 - no c+h, please. i like my space! (only exception is my partner)
 - if a pony has the word "kin" in the name, then it's literally me! doubles dni, sorry.
+- btw, kin doesnt mean "relating to a character" its short for otherkin😭 its an involuntary, core identity. stop watering it down yall
 - i dont roleplay, please dont try to do that...
 - i am incredibly shy and im typically just a lurker, i may struggle to talk with you. also i go afk/tab out a lot
 - its always a mystery whether im silently watching or just completely afk (unless im with friends lol)
