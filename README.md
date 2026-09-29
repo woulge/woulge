@@ -47,7 +47,8 @@
 ## check out the vrchat avi of myself that i edited :3 if im afk chances are im in unity and blender doing avi work lol
 
 
-<img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/469bb73f-31e8-48d0-9f34-4e6dcb4e3499" />
+<img width="141" height="177" alt="image" src="https://github.com/user-attachments/assets/59bed368-353b-4408-b3dc-b8757b5a5f11" />
+
 
 
 ![](https://komarev.com/ghpvc/?username=woulge&label=hoof+bumps)
